@@ -1,0 +1,1 @@
+# ict_for_industrial_applications
